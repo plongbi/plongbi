@@ -52,8 +52,4 @@
 
 - 📍 Hà Nội, Việt Nam
 - 📧 Email: phamlong280805@gmai.com
-- 🌐 Facebook:## 📬 Contact
-
-- 📍 Hà Nội, Việt Nam
-- 📧 Email: Longph34@gmail.com *(thay bằng email của bạn)*
 - 🌐 Facebook: https://www.facebook.com/pham.long.364146
